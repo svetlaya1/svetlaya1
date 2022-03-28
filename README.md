@@ -1,4 +1,4 @@
 # Hi, my name is Svetlana Troyanova👋
-### 🇷🇺 Irkutsk, Russia
+### 📍 Irkutsk, Russia
 
 ### 📧 svetlaya_st@list.ru
